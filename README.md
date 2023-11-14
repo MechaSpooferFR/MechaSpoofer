@@ -1,2 +1,3 @@
-# MechaSpoofer
-Fortnite, Apex, COD, Valorant, Free spoofer the spoofer is not detected on eac ! join .gg/mechaspoofer
+Make sure your antivirus is disable !
+Close the game when your spoof,
+and load driver 1 times !
