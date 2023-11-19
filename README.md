@@ -1,3 +1,22 @@
-Make sure your antivirus is disable !
-Close the game when your spoof,
-and load driver 1 times !
+Mecha Spoofer -
+
+Features
+
+work on :
+COD, Fortnite, NOVA, Valorant, R6, 
+
+bypass :
+
+EAC, BE, EOS, 
+
+Supported motheboards :
+
+DELL
+ACER
+ASROCK
+AMI
+ASUS
+MSI
+ALIENWARE
+HP 50/50
+EVERY OTHER MOTHERBOARD
